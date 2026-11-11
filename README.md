@@ -27,7 +27,7 @@ Interstellar is one of my favorite science-fiction movies because of its fascina
 
 What I particularly love about this movie is how it combines complicated scientific concepts with emotional storytelling. It also shows how powerful love, sacrifice, and family connections can be, even across great distances.
 
-The movie reminds us that love and family are important, even across great distances:joy:.
+The movie reminds us that love and family are important, even across great distances :joy:
 
 #H3Why I Like This Movie:
 
